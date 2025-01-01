@@ -1,3 +1,1 @@
-![](https://64.media.tumblr.com/6786b7f44e767019bca053363f50a783/0b67cbac88fe290e-c9/s1280x1920/f5411d6c9c4c6836575c59da5710c4c7b0787032.pnj)
-
-**"I Want To Be Strong Enough So No One Will Worry About Me."**
+![](https://64.media.tumblr.com/2a36a96143fe31e02745c4a3a0379b77/4a9cbed473f42f6f-6f/s640x960/0846e27d5273b0ba6b708f02bb4a84652d9db896.pnj)
